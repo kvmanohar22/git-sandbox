@@ -18,3 +18,4 @@ Abinash Senapati ([abinashgeek](https://github.com/abinashgeek)) | abinashsena@g
 
 Apoorva Kumar([rava-dosa](https://github.com/rava-dosa)) | apoorvakumar169@gmail.com
 
+Naman Bakhru ([namanbakhru](https://github.com/namanbakhru)) | namanbakhru@gmail.com
